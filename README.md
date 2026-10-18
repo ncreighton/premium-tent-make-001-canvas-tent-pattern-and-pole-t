@@ -1,0 +1,2 @@
+# premium-tent-make-001-canvas-tent-pattern-and-pole-t
+Tired of digging through fabric scraps and pole segments to remember which pattern goes with which pole? This Notion template ends the guesswork.  The Canvas Tent Pattern and Pole Tracker centralizes all your pattern and pole data in one place, eliminating costly errors and saving hours of re-measurement. It’s the only template that links every pat
